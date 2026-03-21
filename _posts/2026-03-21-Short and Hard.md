@@ -1,5 +1,5 @@
 ---
-layout: Wondering
+layout: post
 title:  Very short
 categories: Life
 author: Jim Carrey
