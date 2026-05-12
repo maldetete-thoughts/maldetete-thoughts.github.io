@@ -6,7 +6,7 @@ author: Renan
 
 ---
 
-A necessidade pela descrição munida de verossemelhança clama para que este texto seja escrito em português, assim o farei, então.
+A necessidade pela descrição munida de verossimilhança clama para que este texto seja escrito em português, assim o farei, então.
 
 Um livro que alguns leitores podem classificar como "leitura para uma tarde", quero dizer, você realmente consegue se engajar e terminá-lo em uma tarde, se quiser. É um livro curto, mas de uma profundidade enorme.
 
