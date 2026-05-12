@@ -16,7 +16,11 @@ O bastardo homem romantiza de maneira eloquente cada uma das casas ao seu redor,
 
 Para mim, um dos discursos mais melancólicos que aprofundavam sua dor da solidão foi certamente na passagem 
 
-""
+"Croirez-vous que je fête l'anniversaire d'évènements qui ne sont pas arrivés, mais qui m'eussent été chers ?... Vous svez, des imaginations de balcon... Et fêter ces anniversaires parce que ces stupides rêves ne sont plus, parce que ne sais plus rêves, vous comprenez, ma chére, que c'est un commencement d'enterrement"
+
+e ainda,
+
+"Mais alors je ne me demandais pas encore : Où sont les rêves ? Et voici que je hoche la tête, et je me dis: Comme les années passent vite ! Qu'en as-tu fait ? As-tu vécu ? Regarde comme tout est devenu froid ! Les années passeront; toujours davantage ta solitude t'accablera et viendra la vieillesse accroupie sur son manche à balai; ton monde fantastique pâlira... Novembre;;; Décembre... Ô Nastenka, ce sera triste de vieillir sans avoir vécu : n'avoir pas même de regrets ! Car je n'ai rien à perdre ; toute ma vie n'est qu'un zéro round, un rêve..."
 
 
 Cabe ressaltar que tal homem era extremamente sonhador. COm efeito, em diversas passagens, seja sobre sonhos ou apenas em interlocuções, é citada a trama de "virar um príncipe chinês".
