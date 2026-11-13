@@ -32,6 +32,8 @@ author: Me
 \> Quando a doida se despedir de você dizendo que vai cortar o cabelo de alguém e por isso precisa sair, dê mais corda e aceite passar seu instagram  
 \> Veja que o instagram da mulher se chama vidaloka  
 \> Fique em choque e descubra rindo para caralho que na verdade era isso mesmo, o apelido dela era vidaloka (apelidado em espanhol)  
+\> antes de sair do bar, va ao banheiro e tropece num degrau não visto e caia próximo de um monte de gente, descubra que tinha um cachorro sentado no bar que começa a latir na sua cara e ouça "que saída do bar" em francês  
+\> Note que as pessoas acham que você está bêbado  
 \> saia do bar com o celular mais ou menos carregado  
 \> Perca o ônibus pois aquela estação estava em obras  
 \> Ande mais 2 estações a pé e descubra que elas também estão desativadas em obra  
