@@ -53,3 +53,55 @@ author: Me
 \> tenha seu jogo de palavras cruzadas ensopado e aceite o destino  
 \> Descubra que é sexta feira treze e faça correlações de nenhum valor científico  
 \> FIM
+
+
+--- version en français ---
+
+\> Déménage dans une ville où t'as jamais mis les pieds, dans un pays qui n'est pas le tien  
+\> Choisis l'appart sans le visiter  
+\> Fais tout le déménagement tout seul avec 8 sacs en train et à pied  
+\> Achète le dernier billet de bus du soir pour une ville inconnue (Concarneau) un vendredi 13  
+\> Aventure-toi dans cette ville inconnue 5 jours après avoir emménagé  
+\> Arrive sur place et visite des musées, des châteaux, etc...  
+\> Prends la confiance et commence à taper la discute aux gens au hasard dans la rue  
+\> Après avoir tout visité, tue le temps en entrant dans un magasin de pêche face au port  
+\> Taille le bout de gras avec les deux vieilles, et apprends que la Bretagne traverse l'une des pires sécheresses de son histoire, que tout l'écosystème est déréglé, les microclimats de la faune marine en vrac, grosse mortalité chez les poissons, etc...  
+\> Entends la dame te dire qu'elle a un client pêcheur argentin qui tient une librairie sur la place  
+\> Va à la librairie et cherche Rodrigo  
+\> Appelle Rodrigo à la caisse et dis-lui l'air de rien que tu cherches des bouquins de pêche  
+\> Découvre qu'il y a effectivement des livres de pêche dans la librairie  
+\> Demande à Rodrigo lequel va t'apprendre le microclimat de la faune, les marées et les particularités de la pêche en Bretagne du genre : le vent de sud/sud-ouest fait mordre plus de poissons, etc...  
+\> Entends Rodrigo se foutre de ta gueule en te disant que ça c'est des secrets de pêcheurs et que personne n'écrirait jamais ça  
+\> Contente-toi des bouquins sur le matos de pêche et autres conneries  
+\> Achète juste un cahier de mots croisés et sors de la boutique  
+\> Entre dans un bar-tabac pour recharger ton téléphone  
+\> Vois une meuf tomber sur le gosse d'une pote qui court partout dans le bar-tabac (endroit pas franchement propice et adapté aux gamins)  
+\> Après avoir vu la meuf qui sirote un Aperol saluer le gamin, entends-la dire « Tiens, ta mère est là ? Vas-y, va chercher ta maman et dis-lui que t'as trouvé **nom incompréhensible** vidaloka »  
+\> Doute fortement de ton audition, pense que ton français n'est pas encore assez bon et que t'as probablement mal compris  
+\> Vois le gamin repartir avec sa mère après avoir dit bonjour à la meuf à l'Aperol, et sens une énergie de dalleuse puissance 9 Anitta s'approcher de toi  
+\> Capte qu'elle est en train de te draguer  
+\> Rentre dans le jeu de la tarée et découvre qu'elle est anarchiste, qu'elle vote pas, qu'elle est coiffeuse afro et qu'elle a un gosse  
+\> Quand la tarée te dit au revoir parce qu'elle doit aller couper les cheveux de quelqu'un, continue d'alimenter le truc et accepte de lui filer ton Insta  
+\> Vois que l'Insta de la meuf s'appelle vidaloka  
+\> Reste sur le cul et réalise en te marrant comme un con que t'avais bien entendu depuis le début, son surnom c'était vraiment vidaloka (surnom en espagnol)  
+\> Avant de sortir du bar, va aux chiottes, trébuche sur une marche que t'avais pas vue et étale-toi devant plein de gens, découvre qu'il y avait un chien assis dans le bar qui se met à t'aboyer à la gueule et entends « Quelle sortie de bar ! »  
+\> Remarque que tout le monde pense que t'es bourré  
+\> Sors du bar avec le téléphone à moitié chargé  
+\> Rate le bus parce que l'arrêt était en travaux  
+\> Marche encore 2 arrêts à pied et découvre qu'ils sont aussi désactivés pour travaux  
+\> Commence à faire du stop dans la rue à 20h  
+\> Fais-toi ignorer sur la route en tendant le pouce  
+\> Marche encore un peu et cherche d'autres embranchements bien éclairés, loin des virages et stratégiques pour faire du stop  
+\> Fais-toi royalement ignorer quand même  
+\> Cherche une zone commerciale de concessionnaires auto  
+\> Marche jusqu'à là-bas et trouve le seul food-truck ouvert  
+\> Raconte une histoire triste comme quoi t'es paumé sans bus, sans Uber, sans espoir  
+\> Force encore plus ton accent pour qu'ils captent bien que t'es un étranger paumé  
+\> Passe officiellement pour l'étranger paumé de service  
+\> Accepte d'être pris en stop par le couple qui achetait une pizza  
+\> Raconte toute ta life pendant un trajet de 20 minutes en bagnole  
+\> Rentre chez toi  
+\> Remarque que la bouteille d'eau censée être vide a en fait fui dans tout ton sac à dos  
+\> Retrouve ton cahier de mots croisés complètement trempé et accepte ton destin  
+\> Réalise qu'on est vendredi 13 et fais des corrélations sans aucune valeur scientifique  
+\> FIN
